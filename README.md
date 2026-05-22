@@ -2,7 +2,7 @@
 
 The Noida property market in 2026 is evolving rapidly as younger homebuyers begin prioritising lifestyle, flexibility, wellness, and future growth potential over traditional buying patterns. Gen Z professionals and millennials are now looking beyond basic apartment layouts and focusing on how a residential community fits into their long-term aspirations.
 
-As more [buyers compare a 2 BHK flat in Noida with 3 BHK flats in Noida] (https://acegroupindia.com/2-bhk-flat-in-noida.php), the discussion is shifting towards work-from-home convenience, social infrastructure, wellness amenities, and community-driven living. This transformation is reshaping buyer behaviour across premium residential destinations near the Noida Expressway.
+As more [buyers compare a 2 BHK flat in Noida with 3 BHK flats in Noida](https://acegroupindia.com/2-bhk-flat-in-noida.php), the discussion is shifting towards work-from-home convenience, social infrastructure, wellness amenities, and community-driven living. This transformation is reshaping buyer behaviour across premium residential destinations near the Noida Expressway.
 
 ## How the New Generation Plans to Buy a Flat in Noida
 
@@ -10,7 +10,7 @@ The modern homebuyer is far more informed and research-driven than previous gene
 
 The Noida International Airport, metro expansion projects, and expressway upgrades are playing a major role in boosting confidence among buyers looking for long-term residential opportunities in Noida.
 
-According to a recent [Hindustan Times report] (https://www.hindustantimes.com/real-estate/noida-international-airport-to-drive-real-estate-prices-plots-may-rise-28-apartments-22-101774581024570.html), infrastructure development around Noida and the Yamuna Expressway is significantly influencing residential demand and investment activity.
+According to a recent [Hindustan Times report](https://www.hindustantimes.com/real-estate/noida-international-airport-to-drive-real-estate-prices-plots-may-rise-28-apartments-22-101774581024570.html), infrastructure development around Noida and the Yamuna Expressway is significantly influencing residential demand and investment activity.
 
 This growing confidence is encouraging buyers to explore larger and more lifestyle-focused residential communities instead of conventional apartment projects.
 
@@ -40,7 +40,7 @@ Features such as landscaped gardens, wellness centres, fitness facilities, smart
 
 This evolving demand is encouraging developers to create projects that combine luxury with functionality and sustainability.
 
-One of the upcoming developments attracting attention is [ACE Arte] (https://acearte.in/), an upcoming residential project on the Noida Expressway offering premium 3 BHK apartments.
+One of the upcoming developments attracting attention is [ACE Arte](https://acearte.in/), an upcoming residential project on the Noida Expressway offering premium 3 BHK apartments.
 
 The project reflects the lifestyle aspirations of modern buyers through features such as a climate-controlled indoor swimming pool, clubhouse, Miyawaki Forest, and outdoor gym. These amenities strongly align with the wellness-focused preferences of Gen Z and millennial homebuyers.
 
@@ -64,7 +64,7 @@ Modern residential communities are now incorporating wellness clubs, landscaped 
 
 This trend is particularly visible in premium developments near the Noida Expressway, where younger buyers are actively searching for homes that offer both luxury and lifestyle value.
 
-[Luxury Redefined: Best ACE Apartments in Noida for Modern Living | ACE Group India] (https://www.youtube.com/watch?v=wUTEStt4Ris&t=32s)
+[Luxury Redefined: Best ACE Apartments in Noida for Modern Living | ACE Group India](https://www.youtube.com/watch?v=wUTEStt4Ris&t=32s)
 
 ## Conclusion
 
